@@ -1,0 +1,69 @@
+# 乃紫 – 初恋キラー
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:06.85] イジワルは少年の I love you (I love you, love you)
+[00:10.04] 泣き虫は少女の I need you (I need you, need you)
+[00:13.11] 月並みな言葉で why don't you (go out with me)?
+[00:16.64] 安く見積もるなら I'll kill you (ah)
+[00:30.14] 
+[00:26.16] い い 色恋の女神は言いました (oh, what did you say?)
+[00:29.55] 「やめときなさいな彼なんて」
+[00:33.06] やはり悪魔には逆らえず (oh no, oh no)
+[00:36.41] 気付けば手遅れな恋でした
+[00:42.41] 
+[00:39.16] Let's go
+[00:39.80] My friends said, "No"
+[00:41.19] My mommy said, "No"
+[00:42.76] My daddy said, "No"
+[00:44.38] But my feeling said, "Yes"
+[00:57.38] 
+[00:45.87] O-o-of course
+[00:46.42] My friends said, "No" (said, "No")
+[00:47.72] My mommy said, "No" (no, no)
+[00:49.57] My daddy said, "No" (no)
+[00:50.96] But my first love said, "Yes"
+[00:52.74] Mm
+[00:53.74] 
+[00:55.16] ラララララキラー grrah, grrah
+[00:57.71] Five, six, seven, eight
+[01:09.21] 
+[00:59.36] 渋谷で捕まえたハンサムボーイ (my boy, my boy)
+[01:02.78] 下北で遊んだハイセンスボーイ (high sense, high sense)
+[01:05.96] 新宿待ち合わせハイスペックボーイ (I like rich guy)
+[01:09.26] みんな口揃えて"I miss you" (uh-huh)
+[01:23.26] 
+[01:12.53] 情報不足なのいつだって (I'm ready, you ready?)
+[01:15.64] まるで歯が立たない恋でした (eat it, eat it)
+[01:19.00] 奴はハートを食い尽くして (eat up, eat up)
+[01:22.48] 悪魔のように微笑んでいた
+[01:28.48] 
+[01:26.14] 甘ったるい嘘呑み込んだ
+[01:27.59] 騙されちゃったバカな女
+[01:29.43] 初恋なんてこんなもんだ
+[01:30.98] やり切ったよねなんだかんだ
+[01:37.48] 
+[01:32.51] 何度だって恋せよ乙女
+[01:34.16] 彼が欲しい花いちもんめ
+[01:36.05] 命は短く夜は長い
+[01:37.46] 言ったもん勝ち
+[01:38.42] "I love you"
+[01:44.42] 
+[01:39.05] My friends said, "No" (said, "No")
+[01:40.43] My mommy said, "No" (no, no)
+[01:41.92] My daddy said, "No" (no)
+[01:43.54] But my feeling said, "Yes"
+[01:56.54] 
+[01:44.80] O-of course
+[01:45.60] My friends said, "No" (said, "No")
+[01:46.81] My mommy said, "No" (no, no)
+[01:48.72] My daddy said, "No" (no)
+[01:50.03] But my first love said, "Yes"
+[01:51.99] Mm
+[01:52.99] 
+[01:52.18] イジワルは少年の I love you
+[01:55.27] 泣き虫は少女の I need you
+[01:58.45] 月並みな言葉で why don't you
+[02:01.80] 安く見積もるなら I'll kill you
+```
